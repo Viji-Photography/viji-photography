@@ -1,2 +1,3 @@
-## viji-photography
-Lifestyle, Fashion and Event Photography in Toronto
+## VIJI PHOTOGRAPHY
+
+### Lifestyle, Fashion and Event Photography in Toronto
