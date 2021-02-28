@@ -2,7 +2,7 @@
 <p align="center"><img width="250" height="auto" src="https://www.vijiphotography.ca/logo.png">
 </p>
 
-<p align="center"> Master Portrait Photography and Education <p/>
+<p align="center"> Portrait Photography and Education <p/>
 
 ### Who We Are? 
 Portrait photography and education <br>
