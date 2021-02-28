@@ -5,8 +5,8 @@
 <p align="center"> Master Portrait Photography and Education <p/>
 
 ### Who We Are? 
-Master portrait photography and education <br>
-State of the art creative professionals <br>
+Portrait photography and education <br>
+State of the art creative expertise <br>
 Located in Toronto - Montreal - Vancouver
 
 ### What We Do?
