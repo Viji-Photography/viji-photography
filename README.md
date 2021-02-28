@@ -7,7 +7,7 @@
 ### Who We Are? 
 Portrait photography and education <br>
 State of the art creative expertise <br>
-Located in Toronto - Montreal - Vancouver
+In Toronto - Montreal - Vancouver
 
 ### What We Do?
 <details>
